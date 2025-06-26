@@ -11,5 +11,3 @@ Your one-stop platform for everything students need—from choosing the right co
 - 🎯 Test Prep & Exam Info
 - 💸 Scholarships & Education Loans
 - 📰 Edu News, Events, Blogs, & Q&A
-
-🚀 Explore all our tools at [collegeking.com](https://collegeking.com)
